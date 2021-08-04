@@ -1,1 +1,1 @@
-# The-Gadget-Fcctory-Basic-E-Commerce-Website
+# The-Gadget-Factory-Basic-E-Commerce-Website
